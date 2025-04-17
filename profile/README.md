@@ -8,6 +8,8 @@
 
 This **crazy runner-style experience** blends **extreme parkour mechanics** with satisfying object destruction. Your blade jumps, spins, crashes, and *smashes* through levels filled with challenges, obstacles, and glowing objects.
 
+## <a href="https://izigames.net/slice-master/">👉 Click To Play Slice Master Unblocked 👈</a>
+
 ---
 
 ## 💥 Why Is Slice Master So Addictive?
